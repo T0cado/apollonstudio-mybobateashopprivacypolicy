@@ -1,1 +1,1 @@
-# apollonstudio-mybobateashopprivacypolicy
+apollonstudio-mybobateashopprivacypolicy
